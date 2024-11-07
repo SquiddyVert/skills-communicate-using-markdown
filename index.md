@@ -4,8 +4,7 @@
 
 
 
-
-
+![Image of a very large goldfish](https://www.thecelebpost.com/assets/uploads/updates/2022-11-24/29489_5362978_gbsk_updates.jpg)
 
 
 
